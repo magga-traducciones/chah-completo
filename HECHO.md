@@ -12,7 +12,7 @@ ENG Thanissaro Bhikkhu - Social Anxiety.md
 **Mantener los números de línea ordenados.**
 ______________________________________________
 
-## 01-the-middle-way-within
+## 01-the-middle-way-within.md
 
 * 1-249 @dhammamagga
 
