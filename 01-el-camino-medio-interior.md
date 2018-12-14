@@ -61,6 +61,3 @@ Por lo tanto el Buda no discriminaba entre laicos y monjes, enseñó a todo el m
 Tenemos que ver que no hay razón para nacer. ¿Nacer cómo? Nacer en la alegría: cuando conseguimos algo que queremos nos alegramos por ello. Si no hay apego a esa alegría no hay nacimiento. Si hay apego, lo llamamos 'nacimiento'. Por lo que si conseguimos algo, no nacemos en la alegría. Si perdemos algo, no nacemos en la tristeza. Esto es lo que no nace y lo que no muere. Nacimiento y muerte están ambos basados en el apego a, y el aprecio hacia, los *sankhārā*.  
 
 Por lo que el Buda dijo: 'No hay mas llegar a ser para mi, finalizada la vida santa, este es mi ultimo nacimiento'. ¡Eso es! Conocía lo que no nace y lo que no muere. A conocer esto era a lo que el Buda exhortaba constantemente a sus discípulos. Esta es la práctica correcta. Si no lograís esto, si no alcanzáis el Camino Medio, no transcendereis el sufrimiento.
-
----------
-
