@@ -8,7 +8,7 @@ Lleva un recuento de las partes en las que actualmente se está trabajando y qui
 * **nombre_fichero.md**  
 Fichero de trabajo. Las traducciones se harán por párrafos, y se dejará la traducción al español a continuación del párrafo en el idioma original.  
 
-Finalizada la traducción los archivos se moverán a el directorio **./final**
+Finalizada la traducción los archivos se moverán a el directorio **final**
 
 ## Flujo de trabajo en Github
 1.  Hacer una copia en tu cuenta (Fork).
