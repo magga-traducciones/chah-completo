@@ -20,23 +20,3 @@ Para cambios pequeños o discusiones sobre términos se abrirá un tema en Issue
 
 Se usará Markdown para el formato, tal cual esté en el documento original.  
 
-
-# Más información
-
-## Github Guide Basic
-https://guides.github.com/activities/hello-world/
-
-## Github Colaborate (Fork)
-https://guides.github.com/activities/forking/
-
-## Github Guides
-https://guides.github.com/
-
-## Guía rápida de Github
-http://wikis.fdi.ucm.es/ELP/Gu%C3%ADa_rápida_de_Github
-
-## Markdown en Github
-https://guides.github.com/features/mastering-markdown/
-
-
-
