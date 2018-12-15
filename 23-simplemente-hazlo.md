@@ -1,5 +1,5 @@
-Simplemente, ¡Házlo!
-===========
+Simplemente, ¡Hazlo!
+===========  
 
 *Nota*: Una traducción previa fue impresa con el título de *¡Empieza a hacerlo!*. *Una charla en directo, en dialecto Lao, dada a una Asamblea de Monjes recién ordenados en Wat Pah Pong, en el día del comienzo del Retiro de las Lluvias, en Julio de 1978.*
 
@@ -14,7 +14,7 @@ Lo que sigue con nosotros se llama *sati*, el poder de evocación, de traer algo
 
 Cuando estás practicando meditación caminando (*caṅkama*), elige un camino, digamos de un árbol a otro, sobre 15 metros de longitud. Caminar *caṅkama* es lo mismo que la meditación sentada. Enfoca tu atención: “Ahora, voy a esforzarme. Con una intensa *sati* y *sampajañña* voy a  pacificar mi mente”. El objeto de concentración depende de la persona. Encuentra el que te vaya bien. Algunas personas generan *mettā* hacia todos los seres y luego comenzando con el pie derecho, caminan a un ritmo normal, usando el mantra *‘Buddho’* conjuntamente con el caminar. Siendo consciente de ese objeto continuamente. Si la mente se agita entonces para, calma la mente y luego continúa caminando. Consciente al principio del camino, consciente de cada etapa de este, el principio, el medio y el final. Haz que este conocimiento sea continuo.
 
-Este es un método, centrarse en caminar *caṅkama*. Caminar *caṅkama* significa caminar de aquí a allí. No es fácil. Algunas personas nos ven caminado arriba y abajo y piensan que estamos locos. No se dan cuenta que caminar *caṅkama* hace que surja una gran sabiduría. Camina de aquí a allí. Si estás cansado entonces paras y detienes tu mente. Centrate en hacer que la respiració sea cómoda. Cuando es razonablemente cómoda entonces cambias la atención al caminar de nuevo.
+Este es un método, centrarse en caminar *caṅkama*. Caminar *caṅkama* significa caminar de aquí a allí. No es fácil. Algunas personas nos ven caminado arriba y abajo y piensan que estamos locos. No se dan cuenta que caminar *caṅkama* hace que surja una gran sabiduría. Camina de aquí a allí. Si estás cansado entonces paras y detienes tu mente. Céntrate en hacer que la respiración sea cómoda. Cuando es razonablemente cómoda entonces cambias la atención al caminar de nuevo.
 
 Las posturas cambian por sí mismas. De pie, caminando, sentado, tumbado. Cambian. No podemos estar sentados todo el tiempo, estar de pie todo el tiempo o estar tumbados todo el tiempo. Tenemos que pasar todo tiempo entre una de estas posturas, haz que las cuatro sean beneficiosas. Esta es la manera. Simplemente seguimos haciéndolo. No es fácil.
 
