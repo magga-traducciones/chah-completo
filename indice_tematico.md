@@ -16,6 +16,7 @@ Meditación
     - La mente: 02  
     - Los objetos de la mente:02  
   - samādhi vs vipassanā: 02  
+  
 Continuidad en la práctica: 23, 02  
 Atención constante: 23  
 Resistir (endure): 23  
