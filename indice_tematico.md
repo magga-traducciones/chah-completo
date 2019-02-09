@@ -1,9 +1,9 @@
 Camino medio: 01  
 Cuatro nobles verdades: 02  
 Dos extremos: 01, 02  
-Entender la realidad: 01,02  
+Entender la realidad: 01, 02, 03  
 paticcasamuppāda: 01  
-Convenciones y realidad: 01  
+Convenciones y realidad: 01, 03  
 Entendimiento correcto: 01  
 sati-sampajañña: 02  
 Meditación  
@@ -22,7 +22,9 @@ Atención constante: 23
 Resistir (endure): 23  
 "en su justa medida": 23  
 Vientos mundanos: 02  
-Dejar ir, soltar: 02  
+Dejar ir, soltar: 02 ,03   
 virtud, concentración, sabiduría: 02  
 Separar mente y sensación: 02  
 Investigación: 02  
+Liberación: 03  
+Vacio: 03  
